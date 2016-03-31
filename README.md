@@ -1,9 +1,9 @@
-pg33
+pg33z
 ====
 
 teset22
-http://pg33.setzweb.com
-http://zawszaws.github.io/pg33
+http://pg33z.setz.gq
+http://zawszaws.github.io/pg33z
 
 dsf asdf asdf asdfa sdf asdf asdf asdf sdf
  a dfdf sdf sdf
